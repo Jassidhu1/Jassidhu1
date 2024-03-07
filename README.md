@@ -9,5 +9,5 @@
 ##### 👩🏾‍💻 I am looking to start my career as a Junior Data Analyst.
 
 ### You can connect with me via:
-#### LinkedIn - www.linkedin.com/in/jasleen-kaur-sidhu-
-#### Email - jassidhu991@gmail.com
+![image](https://github.com/Jassidhu1/Jassidhu1/assets/156096791/46011ff1-2f9a-438a-b8d1-65e4c7d1f905)
+![image](https://github.com/Jassidhu1/Jassidhu1/assets/156096791/fce73354-f84b-4d7b-a44d-7a23ebeee1f2)
