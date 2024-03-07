@@ -8,4 +8,4 @@
 
 ### You can connect with me via:
 #### LinkedIn - www.linkedin.com/in/jasleen-kaur-sidhu-
-#### Email - jassidhu991@gmail.come.
+#### Email - jassidhu991@gmail.com
