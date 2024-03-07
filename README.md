@@ -9,5 +9,5 @@
 ##### 👩🏾‍💻 I am looking to start my career as a Junior Data Analyst.
 
 ### You can connect with me via:
-![image](https://github.com/Jassidhu1/Jassidhu1/assets/156096791/46011ff1-2f9a-438a-b8d1-65e4c7d1f905)
-![image](https://github.com/Jassidhu1/Jassidhu1/assets/156096791/fce73354-f84b-4d7b-a44d-7a23ebeee1f2)
+![image](https://github.com/Jassidhu1/Jassidhu1/assets/156096791/86edcf82-46ff-44c3-adf2-1ba01cbb1964)
+![image](https://github.com/Jassidhu1/Jassidhu1/assets/156096791/dfaa22f6-ec48-4ede-906d-0fe070f02b49)
