@@ -10,5 +10,4 @@
 
 ### You can connect with me via:
 #### LinkedIn - www.linkedin.com/in/jasleen-kaur-sidhu-
-#### GitHub - Jassidhu1
 #### Email - jassidhu991@gmail.come.
