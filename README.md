@@ -8,6 +8,8 @@
 ##### 💻 I have just finished a Data Technician bootcamp with JustIT where I was able to learn and develop my skills using software such as Tableau, Excel, PowerBI, Python, R Studio and SQL.
 ##### 👩🏾‍💻 I am looking to start my career as a Junior Data Analyst.
 
-### You can connect with me via:
+
+
+#### You can connect with me via:
 ##### LinkedIn - www.linkedin.com/in/jasleen-kaur-sidhu-
 ##### Email - Jassidhu991@gmail.com
