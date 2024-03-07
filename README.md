@@ -5,8 +5,6 @@
 
 ## Thank you for listening to my presentation!
 🔭 I’m currently working on developing my GitHub so watch this space.
-🌱 I have just finished a Data Technician bootcamp with JustIT 
-🤔 I’m looking to start a new role as a Junior Data Analyst!
 
 ### You can connect with me via:
 #### LinkedIn - www.linkedin.com/in/jasleen-kaur-sidhu-
