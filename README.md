@@ -3,8 +3,8 @@
 ### Hi there 👋
 # I'm Jasleen Kaur Sidhu
 
-## Thank you for listening to my presentation!
-🔭 I’m currently working on developing my GitHub so watch this space.
+## Thank you for listening to my presentation😃
+🔭 I’m currently developing my GitHub so watch this space!
 
 ### You can connect with me via:
 #### LinkedIn - www.linkedin.com/in/jasleen-kaur-sidhu-
